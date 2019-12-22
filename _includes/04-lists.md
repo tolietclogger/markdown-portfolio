@@ -1,0 +1,4 @@
+- cheese
+- beans
+- clogging toilets
+- farting
